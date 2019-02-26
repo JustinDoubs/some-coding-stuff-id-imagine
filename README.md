@@ -1,2 +1,2 @@
 # some-coding-stuff-id-imagine
-WELL LETS do this 
+Im going to assume you can't code in this but like i dunno why else we would be using this 
